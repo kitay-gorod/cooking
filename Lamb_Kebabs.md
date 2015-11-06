@@ -17,4 +17,4 @@
 3. Shape into 6 smaller or 4 larger kebab forms on a lined baking tray.
 4. Cook for 30 minutes at 220C.
 
-Serve with sriracha.
+Serve with sriracha sauce plus yoghurt, mint sauce and crispy onions.
