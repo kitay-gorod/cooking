@@ -21,8 +21,6 @@
 
 1. Mix all herbs and spices with flour.
 2. Mix stock cubes with 2 cups of boiling water.
-3. Make a roux.*
+3. Make a roux (melt butter in pan, add seasoned flour and stir until brown).
 4. Add stock to the roux, stirring until combined.
 5. Simmer until desired thickness is achieved.
-
-* melt butter in pan, add seasoned flour and stir until brown.
