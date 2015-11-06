@@ -2,20 +2,20 @@
 
 ## Ingredients
 
-* 5 tablespoons plain flour
-* 4 tablespoons butter
+* 5 tblsp plain flour
+* 4 tblsp butter
 * 2 cups water
 * 1 chicken stock pod (jelly-type)
 * 1 beef stock pod (jelly-type)
-* 1/4 teaspoon ground black pepper
-* 1/2 teaspoon mild chilli powder
-* 1/4 teaspoon cayenne pepper
-* 1/4 teaspoon smoked paprika
-* 1/4 teaspoon garlic powder
-* 1/2 teaspoon Trader Joes 21 Seasoning Salute mix (contains onion, spices (black pepper, celery seed, cayenne pepper, parsley, basil, marjoram, bay leaf, oregano, thyme, savory, rosemary, cumin, mustard, coriander), garlic, carrot, orange peel, tomato granules, lemon juice powder, oil of lemon, citric acid)
-* 1/2 teaspoon dried sage
-* 1/2 teaspoon dried oregano
-* 1/2 teaspoon dried thyme
+* 1/4 tsp ground black pepper
+* 1/2 tsp mild chilli powder
+* 1/4 tsp cayenne pepper
+* 1/4 tsp smoked paprika
+* 1/4 tsp garlic powder
+* 1/2 tsp Trader Joes 21 Seasoning Salute mix (contains onion, spices (black pepper, celery seed, cayenne pepper, parsley, basil, marjoram, bay leaf, oregano, thyme, savory, rosemary, cumin, mustard, coriander), garlic, carrot, orange peel, tomato granules, lemon juice powder, oil of lemon, citric acid)
+* 1/2 tsp dried sage
+* 1/2 tsp dried oregano
+* 1/2 tsp dried thyme
 
 ## Method
 
