@@ -3,11 +3,12 @@
 ## Ingredients
 
 * 500 grams of lamb mince
+* 1 medium egg
 * 100 grams of dried bread crumbs
 * 1/3 of a large pot of Greek yoghurt
 * 2-3 teaspoons of Middle Eastern spice mix
 * 1 tablespoon of mint sauce
-* 1 medium egg
+* 1 tablespoon of dried mint (optional)
 * salt and pepper to taste
 
 ## Method
